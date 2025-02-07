@@ -4,6 +4,6 @@
 - Usage examples
 - How to contribute
 - Contact information
-Fetichista
+Fetichista de cuellos 
 
 
