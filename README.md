@@ -4,3 +4,4 @@
 - Usage examples
 - How to contribute
 - Contact information
+cosas añadidas
