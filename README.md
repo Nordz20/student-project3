@@ -5,5 +5,3 @@
 - How to contribute
 - Contact information
 Fetichista de cuellos 
-
-
